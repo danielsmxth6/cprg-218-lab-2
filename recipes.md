@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Cheesecake
+
+Ingredients:
+- 1 1/2 cups graham cracker crumbs
+- 1/4 cup melted butter
+- 2 tbsp sugar
+- 4 (8 oz) packages cream cheese, softened
+- 1 cup sugar
+- 1 tsp vanilla extract
+- 4 eggs
+- 1 cup sour cream
+- 1/4 cup all-purpose flour
+
+Instructions
+1. Preheat oven to 325 degrees F (165 degrees C). Combine graham cracker crumbs, melted butter, and 2 tbsp sugar. Press into the bottom of a 9-inch springform pan.
+2. Beat cream cheese and 1 cup sugar until smooth. Blend in vanilla. Add eggs one at a time, mixing well Mix in sour cream and flour until smooth.
+3. Pour batter over crust. Bake for 50-60 minutes, until the center is set. Turn off oven and let cake cool inside for 1 hour.
+4. Refrigerate for at least 4 hours before serving.
+
